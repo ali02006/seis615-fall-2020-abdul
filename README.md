@@ -1,1 +1,1 @@
-# seis615-fall-2020-abdul-a
+# seis615-fall-2020-abdul
